@@ -1,0 +1,1 @@
+Twitterの#paiza_runの練習用
